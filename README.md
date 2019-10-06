@@ -11,6 +11,6 @@ My **baby** has always been around for me.
 
 ## Kali Uchis
 And I take some time,
-Just to be thankful,
-That I had days full of you,
+Just to be *thankful*,
+That I had days full of ***you***,
 Before it all winds down into the memories.
