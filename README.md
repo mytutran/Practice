@@ -1,5 +1,6 @@
 #Get You
-[Get You - Daniel Caesar & Kali Uchis](images/DanielCaesar.jpg)
+
+![Get You - Daniel Caesar & Kali Uchis](images/DanielCaesar.jpg)
 
 [Get You - Daniel Caesar & Kali Uchis Music Video](https://www.youtube.com/watch?v=uQFVqltOXRg)
 
